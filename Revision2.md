@@ -1,5 +1,4 @@
-# 🌟 FICHE DE RÉVISION ANGLAIS 2AM – SEQUENCE TWO : A HEALTHY LIFESTYLE 🌟  
-**Spéciale champion TDAH – Tout en gros, couleurs, emojis et super clair ❤️🚀**  
+# 🌟 FICHE DE RÉVISION ANGLAIS 2AM – SEQUENCE TWO : A HEALTHY LIFESTYLE 🌟   ❤️🚀**  
 **Tu vas tout réussir, je suis trop fier de toi !!**
 
 ---
